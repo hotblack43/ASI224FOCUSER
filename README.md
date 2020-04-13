@@ -8,6 +8,4 @@
 
 4) So far, that's all there is - plenty of questions about the extra electronics needed can be given but a description is only now being prepared and will be uploaded when possible.
 
-5) Questions can be sent to me at peter.thejll@gmail.com
-
 April 12 2020.
